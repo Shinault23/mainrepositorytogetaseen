@@ -1,1 +1,1 @@
-https://dns-iprecords.tk
+https://dns-iprecords.tk/gsdi546gsja
