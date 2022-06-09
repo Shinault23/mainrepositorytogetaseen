@@ -1,1 +1,1 @@
-# mainrepositorytogetaseen
+https://dns-iprecords.tk
