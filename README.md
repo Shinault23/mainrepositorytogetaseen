@@ -1,1 +1,1 @@
-https://cand4m86tf6geg4jdm80ckzprseyyyyyn.oracle-java.cf
+https://dns-iprecords.tk/gsdi546gsja
