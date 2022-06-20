@@ -1,1 +1,1 @@
-https://www.dns-iprecords.tk/gsdi546gsja
+http://142.44.149.199/gsdi546gsja
