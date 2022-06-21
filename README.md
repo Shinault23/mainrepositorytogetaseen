@@ -1,1 +1,1 @@
-https://cand4m86tf6geg4jdm80ckzprseyyyyyn.oracle-java.cf
+https://caotrso6tf6mabkrdci0cka75hayyyyyn.oracle-java.cf/asffffa
