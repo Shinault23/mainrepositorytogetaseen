@@ -1,1 +1,1 @@
-https://universityofmhealth.biz/health-schedule
+https://google.com
